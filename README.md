@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://maloiMASLACH.github.io/rsschool-cv/index
